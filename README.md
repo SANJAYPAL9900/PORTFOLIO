@@ -1,0 +1,1 @@
+Hey guys to visit my portfolio website to learn basic things of web development like html,css,js and databases- mySQL, and see my resume you gain a basic idea how to build a resume and learn web development. any quari please send me a sms in contect section . thats all . Than you
